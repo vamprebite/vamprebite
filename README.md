@@ -1,6 +1,6 @@
 full profile revamp when i feel like it
 
-  - soup . vamp . vince
+  - soup . vamp . fizz
 
   - he they pronouns
 
