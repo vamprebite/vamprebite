@@ -6,5 +6,4 @@ full profile revamp when i feel like it
 
   - whisper to int  .  often offtab
 
-bother me when i feel like myself again
-busy with schoolwork most of the time
+bother me when i feel like myself again / busy with schoolwork most of the time
