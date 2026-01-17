@@ -1,9 +1,5 @@
-full profile revamp when i feel like it
-
-  - soup . vamp . fizz
-
-  - he they pronouns
-
-  - whisper to int  .  often offtab
-
-bother me when i feel like myself again / busy with schoolwork most of the time
+<div align=center> 
+  
+![image](https://github.com/user-attachments/assets/78d0ba05-8fe7-4a06-b630-eebf89660372)
+ 
+ <sub><i>me n my wife</i></sub> 
