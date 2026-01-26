@@ -1,5 +1,8 @@
 <div align=center> 
   
-![image](https://github.com/user-attachments/assets/78d0ba05-8fe7-4a06-b630-eebf89660372)
+![image](https://github.com/user-attachments/assets/8388efb0-2455-477a-b6bb-3de44a8a194a)
+
  
- <sub><i>me n my wife</i></sub> 
+ <sub>Arthur or Soup</sub> 
+  
+  <sub>he / they</sub> 
